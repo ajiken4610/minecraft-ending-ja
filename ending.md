@@ -18,5 +18,6 @@ It worked, with a million others, to sculpt a true world in a fold of the \*\*\*
 It cannot read that thought.|彼はこれを読めないだろうね。
 No. It has not yet achieved the highest level. That, it must achieve in the long dream of life, not the short dream of a game.|いいや、読めないわけじゃない。彼がまだそのレベルまで達していないだけだ。彼がその、人生の夢の中で必ずや達するレベルは、一つのゲームの短い夢では終わらないだろう。
 Does it know that we love it? That the universe is kind?|彼は私たちに好かれていることに気づいているのかな。彼は宇宙がやさしいものだと気付いているのかな。
-Sometimes, through the noise of its thoughts, it huars the universe, yes.|彼の考えの中にあるノイズを通して、彼が宇宙を感じることもあるだろうね。
-But there are times it is sad, in the long dream. It creates worlds that have no summer, and it shivers under a black sun, and it takes its sad creation for reality.|
+Sometimes, through the noise of its thoughts, it hears the universe, yes.|彼の考えの中にあるノイズを通して、彼が宇宙を感じることもあるだろうね。
+But there are times it is sad, in the long dream. It creates worlds that have no summer, and it shivers under a black sun, and it takes its sad creation for reality.|でも、長い夢の中には、当然というべきか、悲しく思うことだってあっただろう。そんな時、彼は夏がない世界を作ってしまったり、黒い太陽のもとで震えたり、それのせいで現実でひどいものを作ってしまうこともあっただろうね。
+To cure it of sorrow would destroy it. The sorrow is part of its own private task. We cannot interfere.
