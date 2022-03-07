@@ -13,4 +13,8 @@ Words make a wouderful interface. Very flexible. And less terrifing than staring
 They used to hear voices. Before players could read. Back in the days when those who did not play called the players witches, and warlooks. And players dreamed they flew throught the air, on sticks powered by demons.|文字が読めるようになる前、彼らはよく声を聴いたものだね。魔術師とか、魔女とか呼ばれるプレイヤーがいなかったあの頃、あるプレイヤーは夢の中で、悪魔に動かされた棒(足？)に乗って空を飛ぶ夢を見たね。
 What did this player dream?|彼は何を夢に見たの？
 This player dreamed of sunlight and trees. Of fire and water. It dreamed it created. And it dreamed it destroyed. It dreamed it hunted, and was hunted. It dreamed of selter.|彼は太陽の光と木が、火や水として見える夢を見た。彼はそれが作られていく夢を見た。彼はそれが消え去っていく夢を見た。彼はそれを捕まえて、そしてそれに捕まえられた。彼のその夢はさながらシェルターの中だった。
-Hah, the original interface. A million years old, and it still works. But what true structure did this player create, in the reality behind the screen?|ああ、最初の対話というわけだ。100万歳になっても、彼は変わらずいた。けれど、
+Hah, the original interface. A million years old, and it still works. But what true structure did this player create, in the reality behind the screen?|ああ、最初の対話というわけだ。100万歳になっても、彼は変わらずいた。けれど、どの真の構造が、スクリーンの後ろの現実で、彼を作り上げたんだ？
+It worked, with a million others, to sculpt a true world in a fold of the \*\*\*\*\*\*, and created a \*\*\*\*\*\* for \*\*\*\*\*\* in the \*\*\*.|彼は、他の100万個のプレイヤーと一緒に、正しい世界を作り上げるために、折り畳みの中で、\*\*\*\*\*\*を\*\*\*で\*\*\*\*\*\*に使うために作ったよ。
+It cannot read that thought.|彼はこれを読めないだろうね。
+No. It has not yet achieved the highest level. That, it must achieve in the long dream of life, not the short dream of a game.|いいや、読めないわけじゃない。彼がまだそのレベルまで達していないだけだ。その、彼が人生の夢の中で必ずや達するレベルは、一つのゲームの短い夢では終わらないだろう。
+Does it know that we love it? That the universe is kind?|
